@@ -4,4 +4,5 @@ Karanja Joy Wangari - 189731
 
 Agwata Felicia - 189807
 
-<img width="741" height="323" alt="image" src="https://github.com/user-attachments/assets/9556b67f-dd91-414d-80dd-90d46e5762cc" />
+<img width="1600" height="1200" alt="image" src="https://github.com/user-attachments/assets/b2142635-4f72-4e31-9819-f70ee2cd6f65" />
+
